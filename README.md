@@ -1,1 +1,1 @@
-Hi, I’m @davidinux.
+Hi, I’m davidinux.
